@@ -1,1 +1,1 @@
-# cool-thing
+# Cool things happens here!
